@@ -1,5 +1,8 @@
 Nama  : Manurung Alex Roger
 
-Kelas : 
+Kelas : TI.20.A.2
  
-NIM
+NIM   : 312010478
+
+.
+
