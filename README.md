@@ -1,1 +1,5 @@
-# Tugas-Per-6-Kripto
+Nama  : Manurung Alex Roger
+
+Kelas : 
+ 
+NIM
